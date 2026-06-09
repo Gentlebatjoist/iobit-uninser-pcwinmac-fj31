@@ -1,4 +1,4 @@
-# 
+# New IObit Uninstaller extensions for Mac OS | Free IObit Uninstaller extensions for PC Windows. Featuring historical data analysis and process prioritization — optimized for maximum performance on every platform.
 
 
 
